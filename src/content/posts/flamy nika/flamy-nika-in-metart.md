@@ -19,8 +19,13 @@ tags: ["Flamy Nika", "Metart X", "Erotica"]
 ![Image 8](https://cdn.elitebabes.com/content/250736/0008-08_1200.jpg)
 ![Image 9](https://cdn.elitebabes.com/content/250736/0008-09_1200.jpg)
 
-[![Join WhatsApp](https://i.postimg.cc/brzSBMFV/join-whatsapp-channel.webp)](https://whatsapp.com/channel/0029VaMsUAp7tkjI8KcaRn10)
-[![Join Telegram](https://i.postimg.cc/sXPZKyKZ/image.jpg)](https://t.me/Xibabes)
+<a href="https://whatsapp.com/channel/0029VaMsUAp7tkjI8KcaRn10" target="_blank" rel="noopener noreferrer">
+  <img src="https://i.postimg.cc/brzSBMFV/join-whatsapp-channel.webp" alt="Join WhatsApp Channel" loading="lazy" />
+</a>
+
+<a href="https://t.me/Xibabes" target="_blank" rel="noopener noreferrer">
+  <img src="https://i.postimg.cc/sXPZKyKZ/image.jpg" alt="Join Telegram Channel" loading="lazy" />
+</a>
 
 ![Image 10](https://cdn.elitebabes.com/content/250736/0008-10_1200.jpg)
 ![Image 11](https://cdn.elitebabes.com/content/250736/0008-11_1200.jpg)
